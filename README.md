@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning Data analytics
 - 💞️ I’m looking to collaborate on basic coding
-- 📫 How to reach me email or snapchat @chanelprempeh22
+- 📫 How to reach me email chanelprempeh1@gmail.com
 - 😄 Pronouns: her and she
 - ⚡ Fun fact: i'm kinda like a beginner just want to explore
 
